@@ -7,4 +7,4 @@ tiktok: @thk6634 *(if you wanna chat mention me on a video's comments, tell it a
   
 private e-mail: thk6634@thk34-vps.ovh  
   
-youtube: https://www.youtube.com/@thk-ug8pw
+youtube: https://www.youtube.com/@th6634
